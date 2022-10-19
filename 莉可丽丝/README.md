@@ -6,4 +6,4 @@
 
 **时轴：囧**
 
-![莉可丽丝](https://images2.imgbox.com/8c/8b/MuAMLgo5_o.png)
+![莉可丽丝](https://img.picgo.net/2022/10/20/MuAMLgo5_o.png)
