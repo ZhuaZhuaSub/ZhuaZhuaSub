@@ -1,7 +1,9 @@
 <div align=center><img width="802" height="1029" src="https://images2.imgbox.com/f0/c3/za0mt5kQ_o.png"></div>
 
 ## 本仓库为爪爪字幕组自翻字幕GitHub分享页面
+
 **此仓库中字幕翻译均是爪爪字幕组自翻字幕**
+
 **未经许可，请勿将本组字幕用于盈利，如需二次修改发布请标明字幕来源于本组**
 
 **交流群QQ号 ：571435381**
