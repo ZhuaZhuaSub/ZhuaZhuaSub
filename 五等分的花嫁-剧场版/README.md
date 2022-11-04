@@ -6,4 +6,4 @@
 
 **时轴：坑坏、Ioroid**
 
-![五等分的花嫁-剧场版](https://images2.imgbox.com/85/12/agsNSWGM_o.png)
+![五等分的花嫁-剧场版](https://img.picgo.net/2022/11/04/92ddee77a098f453af97d1309575fd3f.jpg)
