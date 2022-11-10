@@ -6,4 +6,4 @@
 
 **时轴：oroid、猫猫猫**
 
-![摇曳露营△ 剧场版]([https://img.picgo.net/2022/11/10/mv2-600x833.png)
+![摇曳露营△ 剧场版](https://img.picgo.net/2022/11/10/mv2-600x833.png)
